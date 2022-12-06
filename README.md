@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Mahide Hasan Anik
 
-I am working as a Web designer and Developer at Corewebbd.com. 
+I am working as a Web Application Developer at One Point It Solutions. 
